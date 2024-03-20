@@ -1,1 +1,1 @@
-# Slash-Mark-_-Intermediate
+# Slash-Mark_Intermediate
